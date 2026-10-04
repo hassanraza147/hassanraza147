@@ -5,9 +5,5 @@
 
 💞️ I’m looking to collaborate on projects that involve innovative scientific research, data interpretation, and academic content development, especially in STEM fields. I welcome opportunities to work with international research teams to explore solutions in environmental sustainability, health sciences, and advanced material science.  
 
-📫 How to reach me:  
-- Email: henryraza786@gmail.com  
-- LinkedIn: linkedin.com/in/hassan-raza-bb2537210  
-
 😄 Pronouns: He/Him  
 ⚡ Fun fact: I’m fluent in English, Urdu, Sindhi, and am conversational in Punjabi and Balochi. I enjoy creative writing, scripting, and even dabbling in organic farming, a hobby that deepens my commitment to sustainable practices.
